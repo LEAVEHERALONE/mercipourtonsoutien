@@ -1,2 +1,0 @@
-# mercipourtonsoutien
-Tiens, ptit cadeau
